@@ -1,2 +1,0 @@
-# Adelina-New-Main
-Adelina
